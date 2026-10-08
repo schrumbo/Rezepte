@@ -19,6 +19,12 @@
 - 4-6 EL Olivenöl
 - 30 g Zartbitterschokolade, gerieben
 
+### Optional mit wraps 
+- Wraps
+- Käse gerieben (Mozarella oder so)
+- Salat
+- Creme Fraiche
+
 ### Rezept Zubereitung
 
 - Eine große Pfanne / Topf mit passendem Deckel heiß werden lassen und so viel Olivenöl hineingeben, bis der Boden bedeckt ist. Das Hackfleisch in die Pfanne geben und anbraten, bis es grob krümelig ist und schöne Roststoffe gebildet hat.
